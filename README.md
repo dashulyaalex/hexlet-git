@@ -1,2 +1,1 @@
-Шлифанем!
-ner line
+No code NO pain
